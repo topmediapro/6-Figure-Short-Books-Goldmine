@@ -1,6 +1,6 @@
 # 6 Figure Short Books Goldmine OTO Review and Product Details
 
-### 6 Figure Short Books Goldmine - Unlock a 6-Figure Passive Income Stream on Amazon with Just a Few Hours a Week – No Writing Required, unless you really want to! The Front End offer includes the complete Short Reads Goldmine System, including a comprehensive 19,000+ word eBook... OTO #1 - Easy AI Covers OTO #2 - AI Fiction Mastery OTO #3 - Fiction Starter Prompts
+### [6 Figure Short Books Goldmine](https://jvupsell.com/2025/02/6-figure-short-books-goldmine-oto-review/) - Unlock a 6-Figure Passive Income Stream on Amazon with Just a Few Hours a Week – No Writing Required, unless you really want to! The Front End offer includes the complete Short Reads Goldmine System, including a comprehensive 19,000+ word eBook... OTO #1 - Easy AI Covers OTO #2 - AI Fiction Mastery OTO #3 - Fiction Starter Prompts
 
 6 Figure Short Books Goldmine is a complete self-publishing system in the hot in-demand Kindle Publishing. The system is a comprehensive guide that walk through step-by-step on starting and scaling your own kindle publishing empire.
 
